@@ -1,11 +1,11 @@
 ━━━━━━━━━━━━━━━━━━━━
-
+˹Rɪsᴇ ꭙ Cʜᴀᴛʙᴏᴛ˼🍃🍂🌱
 <h2 align="center">
     ──「🥀🔥 𝐕𝐈𝐂𝐊 ✘ 𝐂𝐇𝐀𝐓𝐁𝐎𝐓 🔥🥀」──
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/5827085a806d894902d61.jpg">
+  <img src="https://telegra.ph/file/463dd0acf84d4b1ae10b0.jpg">
 </p>
 
 𝐀𝐧 𝐀𝐝𝐯𝐚𝐧𝐜𝐞𝐝 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐂𝐡𝐚𝐭𝐛𝐨𝐭 𝐎𝐩𝐞𝐧 𝐒𝐨𝐫𝐜𝐞 𝐂𝐨𝐝𝐞
